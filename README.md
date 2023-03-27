@@ -1,1 +1,0 @@
-# umiirosoft.github.io
